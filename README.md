@@ -2,4 +2,4 @@
 
 ⚡ 4th Year Computer Science Engineering Student
 
-🌱 I like to Draw
+🌱 I like to draw
