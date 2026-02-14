@@ -1,3 +1,4 @@
 ## Hi there 👋
 
-⚡ Computer Engineer
+This is a deprecated account. 
+New account -- @LiaCastaneda
